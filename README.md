@@ -1,0 +1,1 @@
+# EquityTrainingNov2018
